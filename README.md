@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joesamp20
-- 👀 I’m interested in ... web developer 
+- 👀 I’m interested in ...internship  web developer 
 - 🌱 I’m currently learning ... with courses and college 
 - 💞️ I’m looking to collaborate on ...team among other things.
 - 📫 How to reach me ...my number 8899205211
